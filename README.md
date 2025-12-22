@@ -1,2 +1,0 @@
-# proejkt-ptrpo
-MOI SAIT
